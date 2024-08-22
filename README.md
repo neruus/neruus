@@ -1,16 +1,16 @@
-                
- neryu/neru
 
-any pronouns
 
-feel free to reach me
+<p align="center">“If I can't do it. . . I'll just die. But if I win, I live. If I don't fight, I can't win.”</p>
 
-oftenly afk
+ <div align="center">
+   <img src="https://i.pinimg.com/564x/92/41/eb/9241ebab7aea6c8c4a1cbc9dd7ceca44.jpg" height="300"
+     </div>
+   
+   ### neru/neryu
+   any pronouns - mbti = istp
+  
+   feel free to reach me !
 
-mbti; istp
-
-![cute chinese wahtth](https://github.com/user-attachments/assets/48dcd403-9770-4e9d-83c4-6e3c5927054f)
-
-# i am disappointed if you do bad things to my friends. Thank you.
-
- 
+   oftenly afk 
+   # i dislike if you do bad things to my friends, thank you.
+   
